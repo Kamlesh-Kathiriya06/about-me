@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **Hacking**
 
-- 👨‍💻 All of my projects are available at [https://github.com/HackingHubOfficial](https://github.com/Kamlesh-Kathiriya06)
+- 👨‍💻 All of my projects are available at [https://github.com/Kamlesh-Kathiriya06](https://github.com/Kamlesh-Kathiriya06)
 
 - 📝 I regularly write articles on [https://Hacking-Hub-official.blogspot.com](https://Hacking-Hub-official.blogspot.com)
 
